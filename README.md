@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1dhvanimehta from gujarta.
+- 👋 Hi, I’m @1dhvanimehta from Gujarat.
 - 👀 I’m interested in error solving in project
 - 🌱 I’m currently learning language 
 - 💞️ I’m looking to collaborate on to solving error in projects because my knowledeg is increase so...
